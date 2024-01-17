@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **AI development**
 
-- 🤝 I’m looking for help with **everything**
+- 🤝 I’m looking for help with **guidance**
 
 - 📫 How to reach me **apoorvchangra6@gmail.com**
 
