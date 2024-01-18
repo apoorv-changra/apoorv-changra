@@ -3,9 +3,9 @@
 
 
 
-- 🌱 I’m currently learning **machine learning.**
+- 🌱 I’m currently learning **machine learning and generative AI.**
 
-- 👯 I’m looking to collaborate on **AI development**
+- 👯 I’m looking to collaborate on **AI development.**
 
 - 🤝 I’m looking for help with **guidance**
 
