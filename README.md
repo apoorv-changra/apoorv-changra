@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **apoorvchangra6@gmail.com**
 
-- ⚡ Fun fact **I think regression is possible.**
+- ⚡ Fun fact **I think reincarnation is possible.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
